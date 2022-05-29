@@ -47,4 +47,4 @@ Urban : 81%           total of            2405 drivers
 ***Summary ***
 
 
-I summarize and recommend the PYbar to make some incentives for drivers to work on rural and suburban given that both areas are participating only to 30% of the profit and the average of the fare is around 34 dollars the highest .
+I summarize and recommend the PYber to make some incentives for drivers to work on rural and suburban given that both areas are participating only to 30% of the profit and the average of the fare is around 34 dollars the highest .
